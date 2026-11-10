@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming and video games
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on all necessary IT programs
-- 📫 How to reach me +263788148764
+- 📫 How to reach me WhatsApp +263788148764 Facebook @Kelvin Mazodze
 - 😄 Pronouns: vamazodze
 - ⚡ Fun fact: jest joker
 
