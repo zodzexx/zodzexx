@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Zodzexx
-- 👀 I’m interested in programming ajd video games
+- 👀 I’m interested in programming and video games
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on all necessary IT programs
 - 📫 How to reach me +263788148764
